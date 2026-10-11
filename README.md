@@ -6,7 +6,7 @@
 
 添加后留言什么手机型号、需要什么软件需求就行，看到就会回复
 
-下载地址
+软件下载地址
 https://share.feijipan.com/s/wPvbHF06
 
 
